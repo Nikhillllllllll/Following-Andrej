@@ -1,0 +1,1 @@
+I've been a follower of Andrej for a long time now and had multiple attempts at learning his lectures. This is my first completed lecture and I intend to follow along until the end of the playlist. - https://www.youtube.com/watch?v=VMj-3S1tku0&list=PLAqhIrjkxbuWI23v9cThsA9GvCAUhRvKZ
